@@ -71,5 +71,12 @@ https://cdn.discordapp.com/attachments/1353813853133213828/1503441341722525756/1
 
 
 https://cdn.discordapp.com/attachments/1353813853133213828/1503439245589872830/Black-Ops-Gold-Unit-on-planetminecraft-com.png?ex=6a035a68&is=6a0208e8&hm=de87ff3c259b0ceb5aa366759fbac6a760ea55a421544b2ea5a2a557cf61c8ea&
-<img width="64" height="64" alt="image" src="https://github.com/user-attachments/assets/33d7ca74-cd41-4b82-b240-d7aac9a5f0e2" />
+<img width="66" height="134" alt="image" src="https://github.com/user-attachments/assets/ce3e0b90-5811-4b3b-a8b3-b7bc7f371fb7" />
+
+
+
+https://cdn.discordapp.com/attachments/1353813853133213828/1503442344039682190/vujo.png?ex=6a035d4b&is=6a020bcb&hm=7908e8371a39ca980f3dd21a95d42466594b3cc91637e051899a0128129774d8&
+<img width="184" height="350" alt="image" src="https://github.com/user-attachments/assets/95890629-9973-4d27-ab38-a034fd3eb2b8" />
+
+
 
