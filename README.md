@@ -58,6 +58,22 @@ https://cdn.discordapp.com/attachments/1353813853133213828/1503440977363472554/4
 
 -
 
+
+
+https://cdn.discordapp.com/attachments/1353813853133213828/1509897329874829472/d1018eca99a0c224.png?ex=6a1ad8f7&is=6a198777&hm=a2a09f70dfd09ab75e99cfab78cf5ca3550a4bd3de0140c21475b401a8799cdd&
+![Uploading image.png…]()
+
+-
+
+https://cdn.discordapp.com/attachments/1353813853133213828/1509897463669198890/c0e45ac101a07fa2.png?ex=6a1ad917&is=6a198797&hm=fac916142303658a76f02568c56217bdf873ae7ac3f879214540393d181e45b0&
+![Uploading image.png…]()
+
+-
+
+https://cdn.discordapp.com/attachments/1353813853133213828/1509897571257155615/stalker.png?ex=6a1ad931&is=6a1987b1&hm=9a2df0409f96453642115d80de54ec241231601212b9a853ee390a751d209790&
+![Uploading image.png…]()
+
+
 ## ГРАЖДАНСКИЕ
 
 https://cdn.discordapp.com/attachments/1353813853133213828/1503439690932424734/f3667818c9e5a9ea.png?ex=6a035ad2&is=6a020952&hm=1cccfd5563a70923d295977e8744c83365fda190a74084fcbd45d8867ef83d4d&
@@ -85,18 +101,4 @@ https://cdn.discordapp.com/attachments/1353813853133213828/1503442344039682190/v
 
 
 -
-
-
-https://cdn.discordapp.com/attachments/1353813853133213828/1509897329874829472/d1018eca99a0c224.png?ex=6a1ad8f7&is=6a198777&hm=a2a09f70dfd09ab75e99cfab78cf5ca3550a4bd3de0140c21475b401a8799cdd&
-![Uploading image.png…]()
-
--
-
-https://cdn.discordapp.com/attachments/1353813853133213828/1509897463669198890/c0e45ac101a07fa2.png?ex=6a1ad917&is=6a198797&hm=fac916142303658a76f02568c56217bdf873ae7ac3f879214540393d181e45b0&
-![Uploading image.png…]()
-
--
-
-https://cdn.discordapp.com/attachments/1353813853133213828/1509897571257155615/stalker.png?ex=6a1ad931&is=6a1987b1&hm=9a2df0409f96453642115d80de54ec241231601212b9a853ee390a751d209790&
-![Uploading image.png…]()
 
